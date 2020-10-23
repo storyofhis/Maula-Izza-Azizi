@@ -8,7 +8,7 @@
   
   Linkedln : [www.linkedin.com/in/maula-azizi-2789771b7]
   
-  Instagram : 
+  Instagram : [https://www.instagram.com/dedeolaa/]
   
   University : Sepuluh Nopember Institute of Technology 
   
