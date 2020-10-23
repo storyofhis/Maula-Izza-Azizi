@@ -5,8 +5,7 @@
 
 
 Name : Maula izza Azizi.
-
- Job :student.
+ Job : Student.
 
   - Informatics
   - Sepuluh Nopember Institute of Technology
