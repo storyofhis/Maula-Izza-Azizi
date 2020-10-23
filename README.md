@@ -4,7 +4,7 @@
 
 
 
-Name : Maula izza Azizi
+Name : Maula izza Azizi.
  Job :student.
 
   - Informatics
