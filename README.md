@@ -8,6 +8,8 @@
   
   Linkedln : [www.linkedin.com/in/maula-azizi-2789771b7]
   
+  Instagram : 
+  
   University : Sepuluh Nopember Institute of Technology 
   
   Major : Informatics 
