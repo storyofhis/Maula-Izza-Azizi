@@ -4,8 +4,8 @@
 
 
 
-Nama : Maula izza Azizi
-I am student.
+Name : Maula izza Azizi
+ Job :student.
 
   - Informatics
   - Sepuluh Nopember Institute of Technology
