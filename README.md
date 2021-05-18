@@ -4,11 +4,11 @@
 
   Maula izza Azizi 
   
-  Student at 2020.
+  Computer Science Student
   
   Linkedln : [www.linkedin.com/in/maula-azizi-2789771b7]
   
-  Instagram : [https://www.instagram.com/dedeolaa/]
+  Instagram : [https://www.instagram.com/dedeolaaa/]
   
   University : Sepuluh Nopember Institute of Technology 
   
